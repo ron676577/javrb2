@@ -28,4 +28,4 @@
 要想在网上安心享受高清日本AV影片，选择一个专业、安全且内容丰富的平台非常关键。希望本文帮助你找到最适合的平台，开启舒适的观影体验。  
 
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb2 )</span>
